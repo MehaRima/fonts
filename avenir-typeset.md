@@ -85,3 +85,10 @@ References
 
 ● "Typography". Retrieved 2019-01-05.
 
+# If it's a person
+- The versatile , elegant ,popular and timeless beauty that never goes out of style.
+- They can get along with anyone and everyone.
+- Great host and life of a party.
+- They balance their social extroversion by self-introspection.
+- Overall are genuine,lovable and responsible person.
+
